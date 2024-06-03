@@ -1,0 +1,1 @@
+Documento para a paz mundial
