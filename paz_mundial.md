@@ -1,1 +1,2 @@
 Documento para a paz mundial
+A paz mundial é um estado de harmonia global onde todos os países e povos convivem sem conflitos armados, respeitando os direitos humanos, promovendo justiça social e cooperando para o bem-estar comum. (Mutano)
